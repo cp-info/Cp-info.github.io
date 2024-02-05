@@ -24,3 +24,10 @@ We know many things that you can not even think.
   
 ----------------------------------------
 
+![1000006479](https://github.com/cp-info/Cp-info.github.io/assets/158504182/64fdc848-4ba4-4c61-a5c2-ffc8b95e094f)
+
+
+----------------------------------------
+
+<h2 align="center">Mehedi Hasan (CO - CEO)</h2>
+
