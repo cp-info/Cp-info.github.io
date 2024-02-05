@@ -20,7 +20,7 @@ We know many things that you can not even think.
 
 ----------------------------------------
 
-<h2 align="center">Mehedi Hasan (CO - CEO)
+<h2 align="center">Mehedi Hasan (CO - CEO)</h2>
   
 ----------------------------------------
 
