@@ -29,5 +29,5 @@ We know many things that you can not even think.
 
 ----------------------------------------
 
-<h2 align="center">Mehedi Hasan (CO - CEO)</h2>
+<h2 align="center">Raju Ahammad (CO - CEO)</h2>
 
