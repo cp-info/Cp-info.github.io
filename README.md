@@ -31,3 +31,24 @@ We know many things that you can not even think.
 
 <h2 align="center">Raju Ahammad (CO - CEO)</h2>
 
+![1000006491](https://github.com/cp-info/Cp-info.github.io/assets/158504182/22ac7d57-8eaa-45b4-92a3-97f97ed25b30)
+
+
+----------------------------------------
+
+<h2 align="center"> Fijul Amin Sheikh (Senior Admin))</h2>
+
+![1000006477](https://github.com/cp-info/Cp-info.github.io/assets/158504182/3a0e1616-c5de-45c2-bdd0-93dee71974d0)
+
+
+----------------------------------------
+
+<h2 align="center"> Shahriyar Ahamed Maruf (Senior Admin)</h2>
+
+![1000006493](https://github.com/cp-info/Cp-info.github.io/assets/158504182/aa11477a-2a87-429b-b576-150592106d39)
+
+
+----------------------------------------
+
+<h2 align="center"> Naime Hassan Ivon (Senior Admin)</h2>
+
