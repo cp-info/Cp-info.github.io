@@ -16,7 +16,8 @@ We know many things that you can not even think.
   
 ----------------------------------------
 
-![1000006449](https://github.com/cp-info/Cp-info.github.io/assets/158504182/0cd4130a-ea99-4e29-a90c-33a1693c5c14)
+![1000006495](https://github.com/cp-info/Cp-info.github.io/assets/158504182/44b112ef-2bae-4a70-a7ea-094bae491806)
+
 
 ----------------------------------------
 
