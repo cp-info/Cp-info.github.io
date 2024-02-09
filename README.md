@@ -1,4 +1,3 @@
-# Cyber protection.
 Cyber Terrorism Counter Nation Cyber Protection.
 We know many things that you can not even think.
 - Cyber protection
